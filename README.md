@@ -1,0 +1,1 @@
+gabosotf_merp_inventory
